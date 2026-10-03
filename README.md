@@ -5,3 +5,4 @@ Ethics:
 • Fuck the analogue  
 • Loudness is good  
 • Compression is good
+• No “it all depends on the material” - there are exact rules for mixing any song
